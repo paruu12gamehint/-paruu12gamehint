@@ -1,1 +1,1 @@
-# -paruu12gamehint
+#paruu12gamehint
